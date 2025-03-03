@@ -1,4 +1,4 @@
-### Hi there, I sm sujal, I worked hard for you @wleng0808(sanan), please give me my hardly worked payment👋
+## Hi there, I sm sujal, I hardly worked for you @wleng0808(sanan), please give my payment or crypto👋
 
 
 **wleng0808/wleng0808** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
